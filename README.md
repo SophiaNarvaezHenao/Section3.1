@@ -19,6 +19,7 @@
 
 
 
+<img width="941" height="631" alt="NotificationsClasess" src="https://github.com/user-attachments/assets/c8436cf3-89c4-442f-888e-38930d93e62c" />
 
 
 
